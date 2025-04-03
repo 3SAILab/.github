@@ -1,4 +1,4 @@
-🚀 **Spark Super-Intelligence Studio**  
+🚀 **Sigma Super-Intelligence Studio**  
 
 🌌 *Pioneering the Path to Artificial Superintelligence (ASI)*  
 
