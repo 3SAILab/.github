@@ -1,4 +1,4 @@
-🚀 **Sigma Super-Intelligence Studio**  
+🚀 **Sigma Super-Intelligence**  
 
 🌌 *Pioneering the Path to Artificial Superintelligence (ASI)*  
 
